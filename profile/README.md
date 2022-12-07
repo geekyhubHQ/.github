@@ -7,14 +7,14 @@
    GeekyHub is currently building solutions for businesses and their customers.
    
 🔗 Useful resources 📫 How to reach us:
-  - 🕸️ [GeekyHub Website](https://geekyhub.co.tz)
+  - 🕸️ [GeekyHub.org](https://geekyhub.org)
   - 🤙 **+255737828332**
   - [Whatsapp](https://wa.me/message/ZPXIKXX545DRD1)
   - [Telegram](https://t.me/geekyhub)
-  - [Twitter](https://twitter.com/geekyhubtz)
-  - [Instagram](https://instagram.com/geekyhubtz)
-  - [Facebook](https://facebook.com/geekyhubtz)
-  - [Linkedin](https://www.linkedin.com/company/geekyhubtz)
+  - [Twitter](https://twitter.com/geekyhubHQ)
+  - [Instagram](https://instagram.com/geekyhubHQ)
+  - [Facebook](https://facebook.com/geekyhubHQ)
+  - [Linkedin](https://www.linkedin.com/company/geekyhubHQ)
 
 
 
